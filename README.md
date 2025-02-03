@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'm an aspiring cloud architect
+I'm an aspiring cloud architect that wishes to bring joy to 853 people in the skies.
 
 
 ## 🌐 Socials:
